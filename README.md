@@ -1,4 +1,4 @@
-- 👋 Hi, I’m pavankalyanbakkan
+- 👋 Hi, I’m pavankalyanbakkani
 - 🌱 I’m currently working on grad projects
 - 💞️ I’m looking to collaborate on Real time projects
 - 📫 How to reach me pavankalyanbakkani@gmail.com
